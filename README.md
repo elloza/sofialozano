@@ -1,2 +1,0 @@
-# sofialozano
-Sofia Lozano Web
